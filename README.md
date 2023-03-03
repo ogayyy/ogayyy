@@ -1,4 +1,4 @@
-- Hello! I’m Yago a.k.a ogayyy 😁
+- Hello! I’m Yago 🤠
 - I’m currently learning Java at Interact Technology.
 - You can reach me at my e-mail: yagoanthonyleao@hotmail.com
 
